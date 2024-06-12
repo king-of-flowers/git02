@@ -1,3 +1,3 @@
 Hellow Pushpaa
-How r u?
-I'm From Perambalur
+How r u
+I'm From Trichy
